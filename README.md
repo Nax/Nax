@@ -1,3 +1,1 @@
-### Hello
-
-I'm a dude who likes programming.
+¯\_(ツ)_/¯
